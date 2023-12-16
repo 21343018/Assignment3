@@ -11,5 +11,5 @@ File tugas saya juga dapat diakses melalui link berikut.
 
 > File seluruh tugas: https://drive.google.com/drive/folders/1Qxc-Z_J38T2csLf4BVduVeKWBgONIWet?usp=drive_link
 
-Terima kasih! 😊💗
+### Cheers! 😊💗
 ---
